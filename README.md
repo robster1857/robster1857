@@ -2,7 +2,7 @@
 - 👀 I’m interested in DIY
 - 🌱 I’m currently learning DIY
 - 💞️ I’m looking to collaborate on Teaching all my knowledge on DIY
-- 📫 How to reach me www.facebook.com/groups/diyforbeginnere
+- 📫 How to reach me www.facebook.com/groups/diyforbeginners
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
